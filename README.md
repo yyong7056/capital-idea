@@ -1,1 +1,1 @@
-# capital-idea
+# good-idea
